@@ -1,1 +1,1 @@
-Nargiza Dzhumasheva CV
+Nargiza Dzhumasheva
